@@ -1,0 +1,1 @@
+# ski-worldcup-nation-points
